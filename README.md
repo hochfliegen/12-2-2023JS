@@ -2,3 +2,4 @@
 FULLSTACKTRAINING
 
 seru belajar with coach Vincent.
+blabla flop
